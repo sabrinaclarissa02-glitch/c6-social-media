@@ -1,4 +1,5 @@
 KELOMPOK6
 
+535250112_SabrinaClarissaHendra
 535250119_Marchella
-535250123_Valencia Chen
+535250123_ValenciaChen
